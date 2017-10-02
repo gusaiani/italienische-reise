@@ -17,3 +17,7 @@ Hoje escrevo da latitude 49. Ela vai bem. A manhã foi fria, e aqui se reclama d
 O ser e o fazer dos jesuítas capturam minha atenção. Igrejas, torres e edifícios têm algo de grande e perfeito em seus projetos, que inspiram em todos uma secreta veneração. A decoração em ouro, prata e mármore polido em profusão e esplendor deve impressionar os pedintes de todas as classes. Aqui e lá não faltam toques de mau gosto, para pacificar e atrair a humanidade. Este é sobremaneira o gênio do ritual externo católico; eu nunca havia visto ele aplicado com tanta esperteza, tato e consistência quanto pelos jesuítas. Tudo aqui leva ao mesmo fim, diferente dos membros de outras ordens espirituais, eles não continuam com cerimoniais desgastados, mas, honrando o espírito do tempo, adornam os seus continuamente com pompa e esplendor novos.
 
 Uma rocha peculiar é transformada aqui em blocos. Em aparência ela é uma espécie de conglomerado, na verdade deve ser mais velha, mais primária e de uma natureza porfirítica. É esverdeada e misturada com quartzo, porosa, e ali se encontram grandes pedaços do mais sólido jaspe, onde, novamente, se vêem pequenos pedaços de um tipo de breccia. Um espécimen teria sido instrutivo e desejável, mas a pedra era muito densa, e eu havia prometido para mim mesmo de não carregar pedras nesta viagem.
+
+###### Munique, 6 de Setembro de 1786
+
+Ao meio-dia e meia do dia 5 de setembro eu deixei Regensburg.
