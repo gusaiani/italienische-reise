@@ -20,4 +20,4 @@ Uma rocha peculiar é transformada aqui em blocos. Em aparência ela é uma esp�
 
 ###### Munique, 6 de Setembro de 1786
 
-Ao meio-dia e meia do dia 5 de setembro eu deixei Regensburg.
+Ao meio-dia e meia do dia 5 de setembro eu deixei Regensburg. Em Abach a região é bela, com o Danúbio batendo em pedra-sabão até Saal. É uma pedra similar a de Osteroda, em Harz, densa, mas no geral porosa.
