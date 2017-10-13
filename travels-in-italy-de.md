@@ -20,4 +20,4 @@ Ein sonderbar Gestein wird hier zu Werkstücken verarbeitet, dem Scheine nach ei
 
 ###### München, den 6. September 1786.
 
-Den fünften September halb ein Uhr Mittag reiste ich von Regensburg ab. Bei Abach ist eine schöne Gegend, wo die Donau sich an Kalkfelsen bricht, bis gegen Saale. Es ist der Kalk wie der bei Osteroda am Harz, dicht, aber im ganzen löcherig. Um sechs Uhr morgens war ich in München, und nachdem ich mich zwölf Stunden umgesehen, will ich nur weniges bemerken. In der Bildergalerie fand ich mich nicht einheimisch; ich muß meine Augen erst wieder an Gemälde gewöhnen.
+Den fünften September halb ein Uhr Mittag reiste ich von Regensburg ab. Bei Abach ist eine schöne Gegend, wo die Donau sich an Kalkfelsen bricht, bis gegen Saale. Es ist der Kalk wie der bei Osteroda am Harz, dicht, aber im ganzen löcherig. Um sechs Uhr morgens war ich in München, und nachdem ich mich zwölf Stunden umgesehen, will ich nur weniges bemerken. In der Bildergalerie fand ich mich nicht einheimisch; ich muß meine Augen erst wieder an Gemälde gewöhnen. Es sind treffliche Sachen. Die Skizzen von Rubens von der Luxemburger Galerie haben mir große Freude gemacht.
