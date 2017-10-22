@@ -22,4 +22,6 @@ Ein sonderbar Gestein wird hier zu Werkstücken verarbeitet, dem Scheine nach ei
 
 Den fünften September halb ein Uhr Mittag reiste ich von Regensburg ab. Bei Abach ist eine schöne Gegend, wo die Donau sich an Kalkfelsen bricht, bis gegen Saale. Es ist der Kalk wie der bei Osteroda am Harz, dicht, aber im ganzen löcherig. Um sechs Uhr morgens war ich in München, und nachdem ich mich zwölf Stunden umgesehen, will ich nur weniges bemerken. In der Bildergalerie fand ich mich nicht einheimisch; ich muß meine Augen erst wieder an Gemälde gewöhnen. Es sind treffliche Sachen. Die Skizzen von Rubens von der Luxemburger Galerie haben mir große Freude gemacht.
 
-Hier steht auch das vornehme Spielwerk, die Trajanische Säule in Modell.
+Hier steht auch das vornehme Spielwerk, die Trajanische Säule in Modell. Der Grund Lapislazuli, die Figuren verguldet. Es ist immer ein schön Stück Arbeit, und man betrachtet es gern.
+
+Im Antikensaale konnte ich recht bemerken, daß meine Augen auf diese Gegenstände nicht geübt sind, deswegen wollte ich nicht verweilen und Zeit verderben. Vieles sprach mich gar nicht an, ohne daß ich sagen köntte warum. Ein Drusus erregte meine Aufmerksamkeit, zwei Antonine gefielen mir und so noch einiges. Im ganzen stehen die Sachen auch nicht glücklich, ob man gleich mit ihnen hat aufputzen wollen, und der Saal oder vielmehr das Gewölbe ein gutes Ansehn hätte, wenn es nur reinlicher und besser unterhalten wäre.

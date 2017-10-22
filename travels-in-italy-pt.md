@@ -22,4 +22,6 @@ Uma rocha peculiar é transformada aqui em blocos. Em aparência ela é uma esp�
 
 Ao meio-dia e meia do dia 5 de setembro eu deixei Regensburg. Em Abach a região é bela, com o Danúbio batendo em pedra-sabão até Saal. É uma pedra similar a de Osteroda, em Harz, densa, mas no geral porosa. Às 6 da manhã eu estava em Munique, e após olhar ao redor por umas 12 horas, eu vou notar alguns pontos: eu não me senti à vontade na galeria de esculturas; eu preciso me acostumar primeiro às pinturas. Há coisas excelentes. Os esboços de Rubens na Galeria Luxemburgo me deram grande alegria.
 
-Aqui também reside um raro brinquedo, a Coluna de Trajano em miniatura.
+Aqui também reside um raro brinquedo, a Coluna de Trajano em miniatura. O fundo em lápis-lázuli, as figuras folheadas a ouro. É um belo trabalho, e prazeroso de se ver.
+
+Na Sala de Antiguidades eu logo notei que meus olhos não eram muito treinado neste tipo de objetos, portanto eu não quis ficar lá e desperdiçar meu tempo. Muitas coisas não me tocaram, sem que eu soubesse dizer porquê. Um Drusus chamou minha atenção, dois Antoninos me agradaram e outras coisas mais. No todo, o arranjo dos objetos não foi feliz, apesar de haver uma inegável tentativa, e a sala, ou melhor, o museu, teria aparência melhor se estivesse limpo e bem mantido.
