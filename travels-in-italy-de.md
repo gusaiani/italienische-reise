@@ -27,3 +27,9 @@ Hier steht auch das vornehme Spielwerk, die Trajanische Säule in Modell. Der Gr
 Im Antikensaale konnte ich recht bemerken, daß meine Augen auf diese Gegenstände nicht geübt sind, deswegen wollte ich nicht verweilen und Zeit verderben. Vieles sprach mich gar nicht an, ohne daß ich sagen köntte warum. Ein Drusus erregte meine Aufmerksamkeit, zwei Antonine gefielen mir und so noch einiges. Im ganzen stehen die Sachen auch nicht glücklich, ob man gleich mit ihnen hat aufputzen wollen, und der Saal oder vielmehr das Gewölbe ein gutes Ansehn hätte, wenn es nur reinlicher und besser unterhalten wäre. Im Naturalienkabinett fand ich schöne Sachen aus Tirol, die ich in kleinen Musterstücken schon kenne, ja besitze.
 
 Es begegnete mir eine Frau mit Feigen, welche als die ersten vortrefflich schmeckten. Aber das Obst überhaupt ist doch für den achtundvierzigsten Grad nicht besonders gut. Man klagt hier durchaus über Kälte und Nässe. Ein Nebel, der für einen Regen gelten konnte, empfing mich heute früh vor München. Den ganzen Tag blies der Wind sehr kalt vom Tiroler Gebirg. Als ich von Turm dahin sah, fand ich es bedeckt und den ganzen Himmel überzogen. Nun scheint die Sonne im Untergehen noch an den alten Turm, der mir vor dem Fenster steht, Verzeihung, daß ich so sehr auf Wind und Wetter achthabe: der Reisende zu Lande, fast so sehr als der Schiffer, hängt von beiden ab, und es wäre ein Jammer, wenn mein Herbst im fremden Landen so wenig begünstigt sein sollte als der Sommer zu Hause.
+
+Nun soll es gerade auf Innsbruck. Was lass' ich nicht alles rechts und links liegen, um den einen Gedanken auszuführen, der fast zu alt in meiner Seele geworden ist!
+
+###### Mittenwald, den 7. September, abends.
+
+Es scheint, mein Schutzgeist sagt Amen zu meinem Kredo, und ich danke ihm, der mich an einem so schönen Tage hierher geführt hat.
