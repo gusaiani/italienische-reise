@@ -32,4 +32,6 @@ Nun soll es gerade auf Innsbruck. Was lass' ich nicht alles rechts und links lie
 
 ###### Mittenwald, den 7. September, abends.
 
-Es scheint, mein Schutzgeist sagt Amen zu meinem Kredo, und ich danke ihm, der mich an einem so schönen Tage hierher geführt hat.
+Es scheint, mein Schutzgeist sagt Amen zu meinem Kredo, und ich danke ihm, der mich an einem so schönen Tage hierher geführt hat. Der letzte Postillon sagte mit vergnüglichem Ausruf, es sei der erste im ganzen Sommer. Ich nähre meinen stillen Aberglauben, daß es so fortgehen soll, doch müssen mir die Freunde verzeihen, wenn wieder von Luft und Wolken die Rede ist.
+
+Als ich um fünf Uhr von München wegfuhr, hatte sich der Himmel aufgeklärt. An den Tiroler Bergen standen die Wolken in ungeheuern Massen fest. Die Streifen der untern Regionen bewegten sich auch nicht.

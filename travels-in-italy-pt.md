@@ -32,4 +32,6 @@ E agora, direto a Innsbruck. O que eu não deixo de lado, à esquerda e à direi
 
 ###### Mittenwald, noite de 7 de Setembro
 
-Parece que meu anjo-da-guarda disse Amém para o meu credo, e eu agradeço, por ter me trazido a este lugar em um dia tão belo.
+Parece que meu anjo-da-guarda disse Amém para o meu credo, e eu agradeço, por ter me trazido a este lugar em um dia tão belo. O último postilhão falou, em tom de exclamação, que era o primeiro deste verão. Nutro em silêncio minha superstição que continue assim, mas meus amigos me deverão perdoar se eu falar de novo de ar e nuvens.
+
+Quando eu parti de Munique às cinco horas, o céu clareou. Nas montanhas do Tirol, as nuvens estavam presas em grandes massas. As listras nas partes inferiores também não se moviam.
