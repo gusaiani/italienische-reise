@@ -34,4 +34,4 @@ E agora, direto a Innsbruck. O que eu não deixo de lado, à esquerda e à direi
 
 Parece que meu anjo-da-guarda disse Amém para o meu credo, e eu agradeço, por ter me trazido a este lugar em um dia tão belo. O último postilhão falou, em tom de exclamação, que era o primeiro deste verão. Nutro em silêncio minha superstição que continue assim, mas meus amigos me deverão perdoar se eu falar de novo de ar e nuvens.
 
-Quando eu parti de Munique às cinco horas, o céu clareou. Nas montanhas do Tirol, as nuvens estavam presas em grandes massas. As listras nas partes inferiores também não se moviam.
+Quando eu parti de Munique às cinco horas, o céu clareou. Nas montanhas do Tirol, as nuvens estavam presas em grandes massas. As listras nas partes inferiores também não se moviam. O caminho vai para as alturas, onde você pode ver o rio Isar correndo abaixo sobre colinas de cascalho. Aqui o trabalho das correntes do mar ancestral fica compreensível para nós. Em alguns pedaços de granito encontrei irmãos e primos de peças da minha coleção, pelo que agradeço ao Knebel.
