@@ -37,3 +37,9 @@ Es scheint, mein Schutzgeist sagt Amen zu meinem Kredo, und ich danke ihm, der m
 Als ich um fünf Uhr von München wegfuhr, hatte sich der Himmel aufgeklärt. An den Tiroler Bergen standen die Wolken in ungeheuern Massen fest. Die Streifen der untern Regionen bewegten sich auch nicht. Der Weg geht auf de Höhen, wo man unten die Isar fließen sieht, über zusammengeschwemmte Kieshügel hin. Hier wird uns die Arbeit der Strömungen des uralten Meeres faßlich. In manchem Granitgeschiebe fand ich Geschwister und Verwandte meiner Kabinettstücke, die ich Knebeln verdanke.
 
 Die Nebel des Flusses und der Wiesen wehrten sich eine Weile, endlich wurden auch diese aufgezehrt. Zwischen gedachten Kieshügeln, die man sich mehrere Stunden weit und breit denken muß, das schönste fruchtbarste Erdreich wie im Tale des Regenflusses. Nun muß man wieder an die Isar und sieht einen Durchschnitt und Abhang der Kieshügel, wohl hundertundfunfzig Fuß hoch. Ich gelangte nach Wolfrathshausen und erreichte den achtundvierzigsten Grad. Die Sonne brannte heftig, niemand traut dem schönen Wetter man schreit über das böse des vergehenden Jahres, man jammert, daß der große Gott gar keine Anstalt machen will.
+
+Nun ging mir eine neue Welt auf. Ich näherte mich den Gebirgen, die sich nach und nach entwickelten.
+
+Benediktbeuern liegt köstlich und überrascht beim ersten Anblick. In eiren fruchtbaren Fläche ein lang und breites weißes Gebäude und ein breiter hoher Felsrücken dahinter.
+
+Nun geht es hinauf zum Kochelsee; noch höher ins Gebirge zum Walchemsee. Hier begrüßte ich die ersten beschneiten Gipfel, und auf meine Verwunderung, schon so nahe bei den Schneebergen zu sein, vernahm ich, daß es gestern in dieser Gegend gedonnert, geblitzt und auf den Bergen geschneit habe.
