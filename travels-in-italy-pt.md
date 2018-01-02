@@ -40,4 +40,6 @@ A névoa dos rios e prados persistiu por um tempo, e finalmente dispersou. Entre
 
 Agora um novo mundo se abriu para mim. Eu me aproximava das montanhas que gradualmente se desenvolviam.
 
-Benedictbeuern é deliciosa e surpreendente à primeira vista. Em uma planície fértil fica uma longa e larga construção branca,  e atrás dela uma crista de pedra alta e ampla. Então se sobe para Kochelsee e, ainda mais alto nas montanhas, para Walchemsee. Aqui cumprimentei os primeiros picos nevados, e para minha surpresa, fui informado de que ontem trovejou por estas partes, e que nevou na altitude.
+Benedictbeuern é deliciosa e surpreendente à primeira vista. Em uma planície fértil fica uma longa e larga construção branca,  e atrás dela uma crista de pedra alta e ampla.
+
+Então se sobe para Kochelsee e, ainda mais alto nas montanhas, para Walchemsee. Aqui cumprimentei os primeiros picos nevados, e para minha surpresa, fui informado de que ontem trovejou por estas partes, e que nevou na altitude. Destes prenúncios meteóricos as pessoas tiram esperanças de bom tempo, e por causa da neve precoce, antecipam mudanças na atmosfera. Os precipícios rochosos que me cercam são todos limo do mais velho, e não contém fósseis.
