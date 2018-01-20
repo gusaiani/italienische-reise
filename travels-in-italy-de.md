@@ -50,3 +50,4 @@ Nach Walchensee gelangte ich um halb fünf. Etwa eine Stunde von dem Orte begegn
 
 ###### Auf dem Brenner, den. 8 September, abends.
 
+Hierher gekommen, gleichsam gezwungen, endlich an einen Ruhepunkt, an einen stillen Ort, wie ich ihn mir nur hätte wünschen können. Es war ein Tag, den man jahrelang in der Erinnerung genießen kann. Um sechs Uhr verließ ich Mittenwald, den klaren Himmel reinigte ein scharfer Wind vollkommen. Es war eine Kälte, wie sie nur im Februar erlaubt ist. Nun aber bei dem Glanze der aufgehenden Sonne die dunkeln, mit Fichten bewachsenen Vordergründe, die grauen Kalkfelsen dazwischen und dahinter die beschneiten höchsten Gipfel auf einem tieferen Himmelsblau, das waren köstliche, ewig abwechselnde Bilder.

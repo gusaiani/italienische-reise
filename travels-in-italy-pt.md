@@ -49,3 +49,5 @@ Cheguei a Walchensee às quatro e meia. A uma hora do lugar vivi uma bela aventu
 Sobre outra perspectiva prazerosa nós sentimos alegria mútua. Ela asseriu que teríamos bom tempo adiante de nós. Eles sempre levavam o barômetro consigo, e este era a harpa. Se a corda aguda sobe de afinação é sinal de bom tempo, e foi o que aconteceu. Aceitei o sinal, e nos despedimos de ótimo humor, na esperança de um breve reencontro.
 
 ###### Brenner, noite de 8 de setembro
+
+Aqui vindo, como se à força, finalmente em lugar de repouso, um lugar calmo, bem como eu poderia ter desejado que fosse. Foi um dia a ser lembrado prazerosamente por muitos anos. Saí de Mittenwald à 6 horas, e um vento forte limpou completamente o céu. O frio era daqueles que só se vê em fevereiro. Mas agora, no esplendor do Sol poente, o primeiro plano escuro, denso de figueiras, e se entrevendo por detrás as rochas cinzas de pedra-sabão, e ao fundo os picos cobertos de neve e o céu azul profundo, rendem imagens preciosas e diferentes a cada instante.
