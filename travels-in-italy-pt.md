@@ -61,3 +61,7 @@ Innsbruck é situada em um largo e rico vale entre pedras e montanhas. Primeiro 
 Depois de Innsbruck é ainda mais bonito, descrever não ajuda. A estrada mais frequentada, subindo um despenhadeiro que joga águas em Inn, oferece infindável variedade aos olhos. Mesmo o caminho passando perto das pedras mais afiadas, de fato frequentemente cortando por dentro delas, se vê o outro lado inclinando suavemente, e cultivado com a mais surpreendente habilidade. Na ampla área ascendente ficam vilas, casas, chalés e cabanas, pintadas de branco entre sebes e campos. Logo tudo muda: a terra fica propícia apenas para pasto, até que termina em uma íngreme descida.
 
 Ganhei ideias para meu esquema da Criação, mas nada completamente novo e inesperado. Tenho também sonhado muito com o modelo de que há muito tempo venho falando, através do qual tenho o desejo de dar uma noção de tudo que está fermentando em meu interior, e que na própria natureza não posso imaginar.
+
+Ficou mais e mais escuro, o individual se perdia, as massas se tornavam maiores e mais belas. Finalmente, enquanto tudo se movia diante de mim com uma figura profundamente misteriosa, a Lua iluminou os cumes cobertos de neve, e agora estou esperando que a manhã ilumine este precipício rochoso em que estou, na linha de fronteira entre o Sul e o Norte.
+
+Devo novamente adicionar algumas observações sobre a metereologia que, talvez, me favoreça tanto em agradecimento à atenção que tanto lhe presto.
