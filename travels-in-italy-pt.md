@@ -96,4 +96,4 @@ A celebração do meu aniversário consistiu basicamente em me enviarem vários 
 
 ##### Trento, 11 de Setembro, cedo.
 
-Depois de 50 horas passadas em ativa e constante ocupação, cheguei aqui mais ou menos às 8 da noite de ontem e logo após me retirei para descansar, de modo que agora me encontro em condições de retomar minha narrativa.
+Depois de 50 horas passadas em ativa e constante ocupação, cheguei aqui mais ou menos às 8 da noite de ontem e logo após me retirei para descansar, de modo que agora me encontro em condições de retomar minha narrativa. Às 9 da noite, após terminar a primeira parte do meu diário, I quis desenhar a pousada, os correios no Brenner em suas posições mas não consegui, perdi seus caráteres, e fui para casa meio morosamente.

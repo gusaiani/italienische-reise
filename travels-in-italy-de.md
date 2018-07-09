@@ -96,4 +96,4 @@ Die Feier meines Geburtstages bestand hauptsächlich darin, daß ich mehrere Ged
 
 ##### Trient, den 11. September, früh.
 
-Nachdem ich völlig funfzig Stunden am Leben und in steter Beschäftigung gewesen, kam ich gestern abend um acht Uhr hier an, begab mich bald zur Ruhe und finde mich nun wieder imstande, in meiner Erzählung fortzufahren.
+Nachdem ich völlig funfzig Stunden am Leben und in steter Beschäftigung gewesen, kam ich gestern abend um acht Uhr hier an, begab mich bald zur Ruhe und finde mich nun wieder imstande, in meiner Erzählung fortzufahren. Am Neunten abends, als ich das erste Stück meines Tagebuchs geschlossen hatte, wollte ich noch die Herberge, das Posthaus auf dem Brenner, in seiner Lage zeichnen, aber es gelang nicht, ich verfehlte den Charakter und ging halb verdrießlich nach Hause.
