@@ -111,4 +111,4 @@ Sont pour les fous, dit Salomon
 
 Que um barão do norte escreveu isto é óbvio, e que ele mudaria de ideia nesta região também é natural.
 
-A feira de Bolzano tem um forte comércio de seda; tecidos também, e tanto couro quanto possível dos distritos montanhosos.
+A feira de Bolzano tem um forte comércio de seda; tecidos também, e tanto couro quanto possível dos distritos montanhosos. Diversos mercadores, entretanto, vêm principalmente para depositar seu dinheiro, pegar encomendas e abrir novos créditos. Eu tive grande vontade de ver todos os produtos reunidos aqui, mas o impulso, a inquietação que me empurram não me deixam descansar, e tive que ir andando.

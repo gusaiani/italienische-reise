@@ -111,4 +111,4 @@ Sont pour les fous, dit Salomon
 
 Daß ein nordischer Baron dies geschrieben, ist offenbar, und daß er in diesen Gegenden siene Begriffe ändern würde, ist auch natürlich.
 
-Die Bozner Messe bewirkt einen starken Seidenvertrieb; auch Tücher werden dahin gebracht und was an Leder aus den gebirgigen Gegenden zusammengeschafft wird.
+Die Bozner Messe bewirkt einen starken Seidenvertrieb; auch Tücher werden dahin gebracht und was an Leder aus den gebirgigen Gegenden zusammengeschafft wird. Doch kommen mehrere Kaufleute hauptsächlich, um Gelder einzukassieren, Bestellungen anzunehmen und neuen Kredit zu geben, dahin. Ich hatte große Lust, alle die Produkte zu beleuchten, die hier auf einmal zusammengefunden werden, doch er Trieb, die Unruhe, die hinter mir ist, läßt mich nicht rasten, und ich eile sogleich wieder fort.
