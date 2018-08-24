@@ -110,3 +110,5 @@ Ainsi les verges et les bâtons,
 Sont pour les fous, dit Salomon
 
 Que um barão do norte escreveu isto é óbvio, e que ele mudaria de ideia nesta região também é natural.
+
+A feira de Bolzano tem um forte comércio de seda; tecidos também, e tanto couro quanto possível dos distritos montanhosos.

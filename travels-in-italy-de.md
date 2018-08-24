@@ -110,3 +110,5 @@ Ainsi les verges et les bâtons,
 Sont pour les fous, dit Salomon
 
 Daß ein nordischer Baron dies geschrieben, ist offenbar, und daß er in diesen Gegenden siene Begriffe ändern würde, ist auch natürlich.
+
+Die Bozner Messe bewirkt einen starken Seidenvertrieb; auch Tücher werden dahin gebracht und was an Leder aus den gebirgigen Gegenden zusammengeschafft wird.
