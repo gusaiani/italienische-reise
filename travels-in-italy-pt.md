@@ -116,3 +116,5 @@ A feira de Bolzano tem um forte comércio de seda; tecidos também, e tanto cour
 De Bolzano a Trento são nove milhas em um vale cada vez mais fértil. Tudo que tenta vegetar nas montanhas mais altas, aqui tem mais força e vida, o Sol brilha quente, e se acredita de novo em um deus.
 
 Uma pobre mulher me chamou pedindo que eu pusesse sua criança na carruagem, pois o chão quente estava queimando seus pés. Eu fiz este gesto de caridade em nome da forte luz dos céus. A criança estava estranhamente asseada e vestida, mas eu não consegui extrair nada falando com ela.
+
+O Adige agora fluía mais gentilmente e em muitos lugares fazia largas margens de cascalho. No campo, nas colinas perto do rio, tudo é plantado tão junto que se chega a pensar que vai sufocar um ao outrotudo é plantado tão junto que se chega a pensar que vai sufocar um ao outro..

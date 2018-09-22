@@ -116,3 +116,5 @@ Die Bozner Messe bewirkt einen starken Seidenvertrieb; auch Tücher werden dahin
 Von Bozen auf Trient geht es neun Meilen weg in einem fruchtbaren und fruchtbareren Tale hin. Alles, was auf den höheren Gebirgen zu vegetieren versucht, hat hier schon mehr Kraft und Leben, die Sonne scheint heiß, und man glaubt wieder einmal an einen Gott.
 
 Eine arme Frau rief mich an, ich möchte ihr Kind in den Wagen nehmen, wiel ihm der heiße die Füße verbrenne. Ich übte diese Mildtätigkeit zu Ehren des gewaltigen Himmelslichtes. Das kind war sonderbar geputzt und aufgeziert, ich konnte ihm aber in keiner Sprache etwas abgewinnen.
+
+Die Etsch fließt nun sanfter und macht an vielen Orten breite Kiese. Auf dem Lande, nah am Fluß, die Hügel hinauf ist alles so enge an- und ineinader gepflanzt, daß man denkt, es müsse eins das andere ersticken.
