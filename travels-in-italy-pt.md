@@ -121,4 +121,6 @@ O Adige agora fluía mais gentilmente e em muitos lugares fazia largas margens d
 
 ###### Trento, noite de 10 de setembro
 
-Andei pela cidade, que é antiga e tem casas novas e bem construídas em algumas ruas.
+Andei pela cidade, que é antiga e tem casas novas e bem construídas em algumas ruas. Na igreja havia uma pintura com um concílio reunido e jesuítas ouvindo um sermão. Eu gostaria de saber o que eles estavam dizendo. A igreja destes padres pode ser reconhecida  de fora por suas colunas de mármore vermelho na fachada; uma pesada cortina fecha a porta, mantendo a poeira fora. Eu a levantei e adentrei um pequeno vestíbulo; a igreja em si é separada por uma grade de ferro, de modo que pode ser vista por inteiro. Tudo era quieto e deserto, porque não se fazem mais cultos aqui. A porta da frente foi levantada porque todas as igrejas devem estar abertas na hora do lanche vespertino.
+
+Enquanto eu ficava ali pensando na arquitetura que me parecia similar à de outras igrejas jesuítas, um velho homem entrou, logo retirando seu chapéu preto. Seu sobretudo preto desbotado indicava se tratar de um padre em necessidades. Ele ajoelhou sobre o gradeado e se levantou após uma curta oração.

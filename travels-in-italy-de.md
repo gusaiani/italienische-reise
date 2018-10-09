@@ -121,4 +121,6 @@ Die Etsch fließt nun sanfter und macht an vielen Orten breite Kiese. Auf dem La
 
 ###### Trient, den. 10 September, abends.
 
-Ich bin in der Stadt herumgegangen, die uralt ist und in einigen Straßen neue wohlgebaute Häuser hat.
+Ich bin in der Stadt herumgegangen, die uralt ist und in einigen Straßen neue wohlgebaute Häuser hat. In der Kirche hängt ein Bild, wo das versammelte Konzilium einer Predigt des Jesuitengenerals zuhört. Ich möchte wohl wissen, was er ihnen aufgebunden hat. Die Kirche dieser Väter bezeichnet sich gleich von außen durch rote Marmorpilaster an der Fassade; ein schwerer Vorhang schließt die Türe, den Staub abzuhalten. Ich hob ihn auf und trat in eine kleine Vorkirche; die Kirche selbst ist durch ein eisernes Gitter geschlossen, doch so, daß man sie ganz übersehen kann. Es war alles still und ausgestorben, denn es wird hier kein Gottesdienst mehr gehalten. Die vordere Türe stand nur auf, weil zur Vesperzeit alle Kirchen geöffnet sein sollen.
+
+Wie ich nun so dastehe und der Bauart nachdenke, die ich den übrigen Kirchen dieser Väter ähnlich fand, tritt ein alter Mann herein, das schwarze Käppchen sogleich abnehmend. Sein alter, schwarzer, vergrauter Rock deutete auf einen verkümmerten Geistlichen; er kniet vor dem Gitter nieder und steht nach einem kurzen Gebet wieder auf.
