@@ -125,4 +125,15 @@ Ich bin in der Stadt herumgegangen, die uralt ist und in einigen Straßen neue w
 
 Wie ich nun so dastehe und der Bauart nachdenke, die ich den übrigen Kirchen dieser Väter ähnlich fand, tritt ein alter Mann herein, das schwarze Käppchen sogleich abnehmend. Sein alter, schwarzer, vergrauter Rock deutete auf einen verkümmerten Geistlichen; er kniet vor dem Gitter nieder und steht nach einem kurzen Gebet wieder auf. Wie er sich umkehrt, sagt er halblaut für sich: »Da haben sie nun die Jesuiten herausgetrieben; sie hätten ihnen auch zahlen sollen, was die Kirche gekostet hat. Ich weiß wohl, was sie gekostet hat und das Seminarium, wie viele Tausende.« Indessen war er hinaus und hinter ihm der Vorhang zugefallen, den ich lüftete und mich still hielt. Er war auf der obern Stufe stehengeblieben und sagte: »Der Kaiser hat es nicht getan, der Papst hat es getan.« Mit dem Gesicht gegen die Straße gekehrt und ohne mich zu vermuten, fuhr er fort: »Erst die Spanier, dann wir, dann die Franzosen. Abels Blut schreit über seinen Bruder Kain!« und so gin er die Treppe hinab, immer mit sich redend, die Straße hin. Wahrscheinlich ist es mein Mann, den die Jesuiten erhielten, und der über den ungeheuern Fall des Ordens den Verstand verlor und nun täglich kommt, in dem leeren Gefäb die alten Bewohner zu suchen und nach einem kurzen Gebet ihren Feinden den Fluch zu geben.
 
-Ein junger Mann, den ich um die Merkwürdigkeiten der Stadt fragte, zeigte mir ein Haus, das man des Teufels Haus nennt, welches der sonst allzeit fertige Zerstörer in einer Nacht mit schnell herbeigeschafften Steinen erbaut haben soll.
+Ein junger Mann, den ich um die Merkwürdigkeiten der Stadt fragte, zeigte mir ein Haus, das man des Teufels Haus nennt, welches der sonst allzeit fertige Zerstörer in einer Nacht mit schnell herbeigeschafften Steinen erbaut haben soll. Das eigentliche Merkwürdige daran bemerkte der gute Mensch aber nicht, daß es nämlich das einzige Haus von gutem Geschmack ist, das ich in Trient gesehen habe, in einer älteren Zeit gewiß von einem guten Italiener aufgeführt.
+
+Abends um fünf Uhr reiste ich ab; wieder das Schauspiel von gestern abend und die Heuschreken, die gleich bei Sonnenuntergang zu schrillen anfangen. Wohl eine Meile weit fährt man zwischen Mauern, über welche sich Traubengeländer sehen lassen; andere Mauern, die nicht hoch genug sind, hat man mit Steinen, Dornen und sonst zu erhöhen gesucht, um das Abrupfen der Trauben den Vorbeigehenden zu wehren. Viele Besitzer bespritzen die vordersten Reihen mit Kalk, der die Trauben ungenießbar macht, dem Wein aber nichts schadet, wiel die Gärung alles wieder heraustreibt.
+
+###### Den. 11 September, abends.
+
+Hier bin ich nun in Roveredo, wo die Sprache sich abschneidet; oben herein schwankt es noch immer vom Deutschen zum Italienischen. Nun hatte ich zum erstenmal einen stockwelschen Postillon; der Wirt spricht kein Deutsch, und ich muß nun meine Sprachkünste versuchen. Wie froh bin ich, daß nunmehr die geliebte Sprache lebendig, die Sprache des Gebrauchs wird!
+
+###### Torbole, den 12. September, nach Tische.
+
+Wie sehr wünschte ich meine Freunde einen Augen blick neben mich, daß sie sich der Aussicht freuen könnten, die vor mir liegt!
+

@@ -125,4 +125,15 @@ Andei pela cidade, que é antiga e tem casas novas e bem construídas em algumas
 
 Enquanto eu ficava ali pensando na arquitetura que me parecia similar à de outras igrejas jesuítas, um velho homem entrou, logo retirando seu chapéu preto. Seu sobretudo preto desbotado indicava se tratar de um padre em necessidades. Ele ajoelhou sobre o gradeado e se levantou após uma curta oração. Quando se virou, ele murmurou: “Eles tiraram os jesuítas daqui, mas deviam ter pago o que a igreja custou. Eu sei bem quantos mil, ela e o seminário.” Enquanto isso ele saiu e a cortina caiu atrás dele, eu a levantei de novo e fiquei quieto. Ele parou no degrau mais alto e disse: “Não foi o Imperador quem fez isso, foi o Papa quem fez isso”. Com o rosto virado para a rua e sem me notar, ele continuou: “Primeiro os espanhóis, depois nós, depois os franceses. O sangue de Abel grita contra seu irmão Caim!” e desceu a escadaria, sempre falando sozinho, rua abaixo. Provavelmente é o meu senhor que, tendo sido mantido pelos jesuítas, perdeu a cabeça com a tremenda queda da ordem, e agora vem todos os dias procurar seus velhos habitantes, e após uma curta oração, amaldiçoar seus inimigos.
 
-Um jovem homem, a quem perguntei sobre as curiosidades da cidade, me levou a uma Casa do Diabo, de quem, que em geral é sempre pronto para destruir, se diz que a construiu em uma única noite, com pedras trazidas apressadamente.
+Um jovem homem, a quem perguntei sobre as curiosidades da cidade, me levou a uma Casa do Diabo, de quem, que em geral é sempre pronto para destruir, se diz que a construiu em uma única noite, com pedras trazidas apressadamente. O que é notável sobre esta casa, entretanto, o bom homem não notou, ou seja, que ela é a única casa de bom gosto que eu vi em Trento, e certamente foi construída por algum bom italiano de outra época.
+
+Às cinco da tarde eu parti; de novo o espetáculo da noite passada e os grilos que começam a cantar com o pôr-do-sol. Por mais ou menos uma milha se dirige entre paredes, sobre as quais se vêem vinhas; outras paredes, não altas o suficiente, são aumentadas com pedras, espinhos e outras coisas para impedir que os passantes peguem as uvas. Muitos proprietários salpicam as fileiras da frente com cal, o que torna as uvas não-comestíveis mas não afeta o vinho, já que a fermentação retira tudo.
+
+###### Noite de 11 de setembro
+
+Aqui estou agora em Rovereto, onde a língua corta; até agora ela flutuou entre alemão e italiano. Pela primeira vez tive um postilhão italiano, o estalajadeiro não falava nenhum alemão, e tive que testar minhas habilidades linguísticas. Que felicidade que tome vida agora a língua que eu mais amo, a do uso comum!
+
+###### Torbole, 12 de setembro, após o jantar
+
+Como eu desejaria que meus amigos estivessem comigo por um momento para ver essa paisagem que tenho diante de meus olhos!
+
