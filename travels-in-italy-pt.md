@@ -137,3 +137,4 @@ Aqui estou agora em Rovereto, onde a língua corta; até agora ela flutuou entre
 
 Como eu desejaria que meus amigos estivessem comigo por um momento para ver essa paisagem que tenho diante de meus olhos!
 
+Eu poderia estar em Verona esta noite mas um magnífico fenômeno natural estava ao lado, o Lago de Garda, um espetáculo esplêndido, que eu não queria perder e fui premiado pelo desvio.

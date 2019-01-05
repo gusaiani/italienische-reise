@@ -137,3 +137,5 @@ Hier bin ich nun in Roveredo, wo die Sprache sich abschneidet; oben herein schwa
 
 Wie sehr wünschte ich meine Freunde einen Augen blick neben mich, daß sie sich der Aussicht freuen könnten, die vor mir liegt!
 
+Heute abend hätte ich können in Verona sein, aber es lag mir noch eine herrliche Naturwirkung an der Seite, ein köstliches Schauspiel, der Gardasee, den wollte ich nicht versäumen, und bin herrlich für meinen Umweg belohnt.
+
