@@ -137,4 +137,4 @@ Hier bin ich nun in Roveredo, wo die Sprache sich abschneidet; oben herein schwa
 
 Wie sehr wünschte ich meine Freunde einen Augen blick neben mich, daß sie sich der Aussicht freuen könnten, die vor mir liegt!
 
-Heute abend hätte ich können in Verona sein, aber es lag mir noch eine herrliche Naturwirkung an der Seite, ein köstliches Schauspiel, der Gardasee, den wollte ich nicht versäumen, und bin herrlich für meinen Umweg belohnt. Nach fünfen fuhr ich von Roveredo fort, ein Seitental hinauf, das seine Wasser noch in die Etsch gießt.
+Heute abend hätte ich können in Verona sein, aber es lag mir noch eine herrliche Naturwirkung an der Seite, ein köstliches Schauspiel, der Gardasee, den wollte ich nicht versäumen, und bin herrlich für meinen Umweg belohnt. Nach fünfen fuhr ich von Roveredo fort, ein Seitental hinauf, das seine Wasser noch in die Etsch gießt. Wenn man hinaufkommt, liegt ein ungeheurer Felsriegel hinten vor, über den man nach dem See hinunter muß. Hier zeigten sich die schönsten Kalkfelsen zu malerischen Studien.

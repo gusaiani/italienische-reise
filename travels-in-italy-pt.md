@@ -137,4 +137,4 @@ Aqui estou agora em Rovereto, onde a língua corta; até agora ela flutuou entre
 
 Como eu desejaria que meus amigos estivessem comigo por um momento para ver essa paisagem que tenho diante de meus olhos!
 
-Eu poderia estar em Verona esta noite mas um magnífico fenômeno natural estava ao lado, o Lago de Garda, um espetáculo esplêndido, que eu não queria perder e fui premiado pelo desvio. Depois das 5 da tarde deixei Roveredo, subindo um vale lateral que ainda despeja suas águas no Ádige.
+Eu poderia estar em Verona esta noite mas um magnífico fenômeno natural estava ao lado, o Lago de Garda, um espetáculo esplêndido, que eu não queria perder e fui premiado pelo desvio. Depois das 5 da tarde deixei Roveredo, subindo um vale lateral que ainda despeja suas águas no Ádige. Depois de subir há uma pedra monstruosa que se deve cruzar para descer ao lago. Aqui surgiram as mais estupendas rochas calcáreas para estudos pictóricos.
