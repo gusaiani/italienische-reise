@@ -145,4 +145,8 @@ Após a meia-noite o vento sopra de norte a sul, e quem quer descer para o lago 
 
 > Fluctibus et fremitu resonans Benace marino.
 
-Este primeiro verso, cujo conteúdo está diante de mim, e agora que o vento sopra mais e mais forte, e o lago joga ondas mais altas contra o embarcadouro, e tão verdadeiro quanto muitos séculos atrás.
+Este primeiro verso, cujo conteúdo está diante de mim, e agora que o vento sopra mais e mais forte, e o lago joga ondas mais altas contra o embarcadouro, e tão verdadeiro quanto muitos séculos atrás. Muitas coisas mudaram, mas o vento ainda ruge sobre o lago, cuja visão se refina com uma linha de Virgílio.
+
+Escrito a 45 graus e 50 minutos de latitude.
+
+Fui passear no frio da noite e agora me vejo em um país realmente novo, em um ambiente completamente diferente. As pessoas levam uma vida tranquila e despreocupada; primeiro as portas não têm trancas, mas meu hospedeiro me assegurou que, mesmo que tudo o que eu tivesse fosse feito de diamantes, eu poderia ficar sossegado; segundo, as janelas são cobertas com papel manteiga ao invés de vidro; terceiro, falta uma conveniência muito necessária, de modo que aqui se fica próximo a um estado de natureza.

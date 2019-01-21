@@ -145,4 +145,8 @@ Nach Mitternacht bläst der Wind von Norden nach Süden, wer also den See hinab 
 
 > Fluctibus et fremitu resonans Benace marino.
 
-Der erste lateinische Vers, dessen Inhalt lebendig vor mir steht, und der in dem Augenblicke, da der Wind immer stärker wächst und der See höhere Wellen gegen die Anfahrt wirft, noch heute so wahr ist als vor vielen Jahrhunderten.
+Der erste lateinische Vers, dessen Inhalt lebendig vor mir steht, und der in dem Augenblicke, da der Wind immer stärker wächst und der See höhere Wellen gegen die Anfahrt wirft, noch heute so wahr ist als vor vielen Jahrhunderten. So manches hat sich verändert, noch aber stürmt der Wind in dem See, dessen Anblick eine Zeile Virgils noch immer veredelt.
+
+Geschrieben unter dem fünfundvierzigsten Grade funfzig minuten.
+
+In der Abendkühle ging ich spazieren und befinde mich nun wirklich in einem neuen Lande, in einer ganz fremden Umgebung. Die Menschen leben ein nachlässiges Schlaraffelenben: erstlich haben die Türen keine Schlösser; der Wirt aber versicherte mir, ich könnte ganz ruhig sein, und wenn alles, was ich bei mir hätte, aus Diamanten bestünde; zweitens sind die Fenster mit Ölpapier statt Glascheiben geschlossen; drittens fehlt eine höchst nötige Bequemlichkeit, so daß man dem Naturzustande hier ziemlich nahe kömmt.
