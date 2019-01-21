@@ -141,4 +141,8 @@ Heute abend hätte ich können in Verona sein, aber es lag mir noch eine herrlic
 
 Aus dem Zimmer, in dem ich sitze, geht eine Türe nach dem Hof hinunter; ich habe meinen Tisch davor gerückt und die Aussicht mit einigen Linien gezeichnet. Man übersieht den See beinah in seiner ganzen Länge, nur am Ende links entwendet er sich unsern Augen. Das Ufer, auf beiden Seiten von Hügeln und Bergen eingefaßt, glänzt von unzähligen kleinen Ortschaften.
 
-Nach Mitternacht bläst der Wind von Norden nach Süden, wer also den See hinab will, muß zu dieser Zeit fahren; denn schon einige Stunden vor Sonnenaufgang wendet sich der Luftstrom und zieht nordwärts. Jetzo nachmittag wehet er stark gegen mich und kühlt die heiße Sonne gar lieblich.
+Nach Mitternacht bläst der Wind von Norden nach Süden, wer also den See hinab will, muß zu dieser Zeit fahren; denn schon einige Stunden vor Sonnenaufgang wendet sich der Luftstrom und zieht nordwärts. Jetzo nachmittag wehet er stark gegen mich und kühlt die heiße Sonne gar lieblich. Zugleich lehrt mich Volkmann, daß dieser See ehemals Benacus geheißen, und bringt einen Vers der Virgil, worin dessen gedacht wird:
+
+> Fluctibus et fremitu resonans Benace marino.
+
+Der erste lateinische Vers, dessen Inhalt lebendig vor mir steht, und der in dem Augenblicke, da der Wind immer stärker wächst und der See höhere Wellen gegen die Anfahrt wirft, noch heute so wahr ist als vor vielen Jahrhunderten.

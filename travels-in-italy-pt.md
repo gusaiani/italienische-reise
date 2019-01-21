@@ -141,4 +141,8 @@ Eu poderia estar em Verona esta noite mas um magnífico fenômeno natural estava
 
 Do quarto em que estou uma porta desce para o quintal; movi minha mesa para a sua frente e desenhei a vista com algumas linhas. Se vê o lago quase inteiro, apenas no final à esquerda ele nos escapa aos olhos. Sua beira, toda ladeada por morros e montanhas, brilha com incontáveis pequenas vilas.
 
-Após a meia-noite o vento sopra de norte a sul, e quem quer descer para o lago deve ir nesta hora, pois algumas horas antes do nascer do Sol a corrente de ar muda e sopra para o norte. Esta tarde ele bate forte contra mim e refresca o Sol alto muito docemente.
+Após a meia-noite o vento sopra de norte a sul, e quem quer descer para o lago deve ir nesta hora, pois algumas horas antes do nascer do Sol a corrente de ar muda e sopra para o norte. Esta tarde ele bate forte contra mim e refresca o Sol alto muito docemente. Volkmann me ensina que este lago antigamente era chamado “Benacus”, e cita um verso de Virgílio em que é mencionado:
+
+> Fluctibus et fremitu resonans Benace marino.
+
+Este primeiro verso, cujo conteúdo está diante de mim, e agora que o vento sopra mais e mais forte, e o lago joga ondas mais altas contra o embarcadouro, e tão verdadeiro quanto muitos séculos atrás.
