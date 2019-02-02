@@ -154,3 +154,9 @@ Fui passear no frio da noite e agora me vejo em um país realmente novo, em um a
 O estalajadeiro anunciou com ênfase italiana que era sua alegria poder me servir uma deliciosa truta. Elas são pescadas próximo a Torbole, onde o riacho desce das montanhas e os peixes buscam caminho para subir. O imperador recebe 10 mil florins deste pesqueiro. Estas que não são verdadeiras trutas às vezes chegam a pesar 50 libras, com todo o corpo pontilhado até a cabeça; o sabor entre a truta e o salmão delicado e excelente.
 
 Meu verdadeiro deleite são as frutas, os figos, também as pêras que devem mesmo ser deliciosas, ali onde os limões já estão crescendo.
+
+##### Noite de 13 de Setembro.
+
+Às 3 da manhã de hoje parti de Torbole com dois remadores. De início o vento estava propício para usar as velas. A manhã estava nublada mas gloriosa, e calma no nascer do Sol. Passamos por Limone, cujos jardins e terraços plantados com limoeiros na montanha lhe dão uma aparência rica e limpa. O jardim inteiro consiste em fileiras de pilares quadrados brancos a uma certa distância uns dos outros e que gradualmente sobem a montanha. Traves fortes são colocadas entre esses pilares para cobrir as árvores no inverno. A apreciação destes belos objetos foi favorecida pela passagem lenta, e já havíamos passado por Malcesine quando o vento virou subitamente, e tomou sua direção diurna habitual. O remo ajudou pouco contra sua violência avassaladora, e tivemos que parar no porto de Malcesine.
+
+Este é o primeiro lugar veneziano do lado leste do lago. Quando lidamos com a água não podemos dizer que estaremos aqui ou ali hoje. Quero usar a estadia o melhor possível, especialmente para desenhar o castelo que fica sobre a água e é um belo objeto.
