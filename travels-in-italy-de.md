@@ -159,4 +159,8 @@ Mein eigentlich Wohlleben aber ist in Früchten, in Feigen, auch Birnen, welche 
 
 Heute früh um drei Uhr fuhr ich von Torbole weg mit zwei Ruderern. Anfangs war der Wind günstig, daß sie die Segel brauchen konnten. Der Morgen war herrlich, zwar wolkig, doch bei der Dämmerung still. Wir fuhren bei Limone vorbei, dessen Berggärten, terrassenweise angelegt und mit Zitronenbäumen bepflantz, ein reiches und reinliches Ansehn geben. Der ganze Garten besteht aus Reihen von weißen viereckigen Pfeilern, die in einer gewissen Entfernung voneinander stehen und stufenweis den Berg hinaufrücken. Über diese Pfeiler sind starke Stangen gelegt, um im Winter die dazwischen geplantzen Bäume zu decken. Das Betrachten und Beschauen dieser angenehmen Gegenstände ward durch eine langsame Fahrt begünstigt, und so waren wir schon an Malcesine vorbei, als der Wind sich völlig umkehrte, seinen gewöhnlichen Tagweg nahm und nach Norden zog. Das Rudern half wenig gegen die übermächtige Gewalt, und so mußten wir im Hafen von Malcesine landen.
 
-Es ist der erste venezianische Ort an der Morgenseite des Sees. Wenn man mit dem Wasser zu tun hat, kann man nicht sagen, ich werde heute da oder dort sein. Diese Aufenthalt will ich so gut als möglich nutzen, besonders das Schloß zu zeichnen, das am Wasser liegt und ein schöner Gegenstand ist.
+Es ist der erste venezianische Ort an der Morgenseite des Sees. Wenn man mit dem Wasser zu tun hat, kann man nicht sagen, ich werde heute da oder dort sein. Diese Aufenthalt will ich so gut als möglich nutzen, besonders das Schloß zu zeichnen, das am Wasser liegt und ein schöner Gegenstand ist. Heute im Vorbeifahren nahm ich eine Skizze davon.
+
+##### Den 14. September.
+
+Der Gegenwind, der mich gestern in den Hafen von Malcesine trieb, bereitete mir ein gefährliches Abenteuer, welches ich mit gutem Humor überstand und in der Erinnerung lustig finde.

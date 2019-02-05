@@ -159,4 +159,8 @@ Meu verdadeiro deleite são as frutas, os figos, também as pêras que devem mes
 
 Às 3 da manhã de hoje parti de Torbole com dois remadores. De início o vento estava propício para usar as velas. A manhã estava nublada mas gloriosa, e calma no nascer do Sol. Passamos por Limone, cujos jardins e terraços plantados com limoeiros na montanha lhe dão uma aparência rica e limpa. O jardim inteiro consiste em fileiras de pilares quadrados brancos a uma certa distância uns dos outros e que gradualmente sobem a montanha. Traves fortes são colocadas entre esses pilares para cobrir as árvores no inverno. A apreciação destes belos objetos foi favorecida pela passagem lenta, e já havíamos passado por Malcesine quando o vento virou subitamente, e tomou sua direção diurna habitual. O remo ajudou pouco contra sua violência avassaladora, e tivemos que parar no porto de Malcesine.
 
-Este é o primeiro lugar veneziano do lado leste do lago. Quando lidamos com a água não podemos dizer que estaremos aqui ou ali hoje. Quero usar a estadia o melhor possível, especialmente para desenhar o castelo que fica sobre a água e é um belo objeto.
+Este é o primeiro lugar veneziano do lado leste do lago. Quando lidamos com a água não podemos dizer que estaremos aqui ou ali hoje. Quero usar a estadia o melhor possível, especialmente para desenhar o castelo que fica sobre a água e é um belo objeto. Hoje fiz um esboço dele, de passagem.
+
+##### 14 de Setembro
+
+O vento de proa que me levou ontem ao embarcadouro de Malcesine me colocou em uma aventura perigosa, que eu superei com bom humor e que acho engraçada lembrar.
