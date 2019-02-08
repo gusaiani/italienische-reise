@@ -163,4 +163,6 @@ Este é o primeiro lugar veneziano do lado leste do lago. Quando lidamos com a �
 
 ##### 14 de Setembro
 
-O vento de proa que me levou ontem ao embarcadouro de Malcesine me colocou em uma aventura perigosa, que eu superei com bom humor e que acho engraçada lembrar.
+O vento de proa que me levou ontem ao embarcadouro de Malcesine me colocou em uma aventura perigosa, que eu superei com bom humor e que acho engraçada lembrar. Como havia planejado, de manhã fui ao castelo que é acessível a todos sem ter um portão, vigia ou guarda. No pátio me sentei de frente à antiga torre construída entre e sobre as pedras; aqui encontrei um lugar muito confortável para desenhar; uma cadeira de pedra entalhada na parede, próxima a uma porta fechada, alta uns três ou quatro pês, como encontramos em velhas edificações no nosso país.
+
+Não fazia muito que eu estava sentado e entraram diversas pessoas no pátio, me olharam e andaram para frente e para trás. O grupo se multiplicou, finalmente parou, de modo que me acabou me cercando. Notei que meu desenho havia causado sensação, mas não me deixei afetar e continuei muito calmamente.
