@@ -175,4 +175,8 @@ Quando eu mencionei o Anfiteatro de Verona, conhecido aqui como “Arena”, o a
 
 O atuário falou para que todos ouvissem, mas o Imperador Joseph é um senhor problemático, certamente entretendo muitos maus desígnios contra o Vêneto, e eu bem devia ser um de seus súditos, nomeado por ela para espionar as fronteiras.
 
-“Estou longe de ser um homem do Imperador”, disse eu, “posso me gabar tanto quanto vocês de ser cidadão de uma República, que see governa, mas que não pode, é fato, ser comparada ao ilustre estado do Vêneto, apesar de seu comércio, riqueza e sabedoria não ficarem atrás de nenhum outro estado na Alemanha.
+“Estou longe de ser um homem do Imperador”, disse eu, “posso me gabar tanto quanto vocês de ser cidadão de uma República, que see governa, mas que não pode, é fato, ser comparada ao ilustre estado do Vêneto, apesar de seu comércio, riqueza e sabedoria não ficarem atrás de nenhum outro estado na Alemanha. Sou native de Frankfurt am Main, cidade cujos nome e reputação certamente os alcançaram.”
+
+“De Frankfurt am Main!”, gritou uma bela jovem, “pode-se ver, Sua Podestà, que este estrangeiro se trata de uma boa pessoa. Deixem que chamem Gregorio, que morou lá por muito tempo e vai ser o melhor juíz na matéria.”
+
+Os rostos benevolentes já se multiplicavam ao meu redor, o primeiro adversário evaporou, e quando Gregorio chegou as coisas ficaram a meu favor.

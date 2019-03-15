@@ -175,4 +175,8 @@ Als ich jedoch des Amphitheaters zu Verona er wähnte, das man im Lande unter de
 
 Der Aktuarius versetzte drauf, das lasse sich alles hören, aber Kaiser Joseph sei ein unruhiger Herr, der gewiß gegen die Republik Venedig noch manches Böse im Schilde führe, und ich möchte wohl sein Untertan, ein Abgeordneter sein, um die Grenzen auszuspähen.
 
-»Weit entfernt«, rief ich aus, »dem Kaiser anzugehören, darf ich mich wohl rühmen, so gut als ihr, Bürger einer Republik zu sein, welche zwar an Macht und Größe dem erlauchten Staat von Venedig nicht verglichen werden kann, aber doch auch sich selbst regiert und an Handelstätigkeit, Reichtum und Weisheit ihrer Vorgesetzten keiner Stadt in Deutschland nachsteht.
+»Weit entfernt«, rief ich aus, »dem Kaiser anzugehören, darf ich mich wohl rühmen, so gut als ihr, Bürger einer Republik zu sein, welche zwar an Macht und Größe dem erlauchten Staat von Venedig nicht verglichen werden kann, aber doch auch sich selbst regiert und an Handelstätigkeit, Reichtum und Weisheit ihrer Vorgesetzten keiner Stadt in Deutschland nachsteht. Ich bin nämlich von Frankfurt am Main gebürtig, einer Stadt, deren Name und Ruf gewiß bis zu euch gekommen ist.«
+
+»Von Frankfurt am Main!« rief eine hübsche junge Frau, »da könnt Ihr gleich sehen, Herr Podestà, was an dem Fremden ist, den ich für einen guten Mann halte; laßt den Gregorio rufen, der lange daselbst konditioniert hat, der wird am besten in der Sache entscheiden können.«
+
+Schon hatten sich die wohlwollenden Gesichter um mich her vermehrt, der erste Widerwärtige war verschwunden, und als nun Gregorio herbeikam, wendete sich die Sache ganz zu meinem Vorteil.
