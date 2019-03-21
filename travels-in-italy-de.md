@@ -179,4 +179,4 @@ Der Aktuarius versetzte drauf, das lasse sich alles hören, aber Kaiser Joseph s
 
 »Von Frankfurt am Main!« rief eine hübsche junge Frau, »da könnt Ihr gleich sehen, Herr Podestà, was an dem Fremden ist, den ich für einen guten Mann halte; laßt den Gregorio rufen, der lange daselbst konditioniert hat, der wird am besten in der Sache entscheiden können.«
 
-Schon hatten sich die wohlwollenden Gesichter um mich her vermehrt, der erste Widerwärtige war verschwunden, und als nun Gregorio herbeikam, wendete sich die Sache ganz zu meinem Vorteil.
+Schon hatten sich die wohlwollenden Gesichter um mich her vermehrt, der erste Widerwärtige war verschwunden, und als nun Gregorio herbeikam, wendete sich die Sache ganz zu meinem Vorteil. Dieser war ein Mann etwa in den Funfzigen, ein braunes italienisches Gesicht, wie man sie kennt. Er sprach und betrug sich als einer, dem etwas Fremdes nicht fremd ist, erzählte mir sogleich, daß er bei Bolongaro in Diensten gestanden und sich freue, durch mich etwas von dieser Familie und von der Stadt zu hören, an die er sich mit Vergnügen erinnere.

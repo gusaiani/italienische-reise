@@ -179,4 +179,4 @@ O atuário falou para que todos ouvissem, mas o Imperador Joseph é um senhor pr
 
 “De Frankfurt am Main!”, gritou uma bela jovem, “pode-se ver, Sua Podestà, que este estrangeiro se trata de uma boa pessoa. Deixem que chamem Gregorio, que morou lá por muito tempo e vai ser o melhor juíz na matéria.”
 
-Os rostos benevolentes já se multiplicavam ao meu redor, o primeiro adversário evaporou, e quando Gregorio chegou as coisas ficaram a meu favor.
+Os rostos benevolentes já se multiplicavam ao meu redor, o primeiro adversário evaporou, e quando Gregorio chegou as coisas ficaram a meu favor. Ele era um homem de uns 50 anos, um rosto marrom italiano, como conhecemos. Ele falou e se comportou como se não fosse um estrangeiro, falando logo que esteve a serviço de Bolongaro, e que estava feliz de ouvir algo da família e da cidade, de que se lembrava com prazer.
