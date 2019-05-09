@@ -183,4 +183,4 @@ Schon hatten sich die wohlwollenden Gesichter um mich her vermehrt, der erste Wi
 
 Als ich ihm nun die genaueste Auskunft fast über alles gegeben, um was er mich befragt, wechselten Heiterkeit und Ernst in den Zügen des Mannes. Er war froh und gerührt, das Volk erheiterte sich immer mehr und konnte unserm Zwiegespräch zuzuhören nicht satt werden, wovon er freilich einen Teil erst in ihren Dialekt übersetzen mußte.
 
-Zuletzt sagte er: »Herr Podestà, ich bin überzeugt, daß dieses ein braver, kunstreicher Mann ist, wohl erzogen, welcher herumreist, sich zu unterrichten.
+Zuletzt sagte er: »Herr Podestà, ich bin überzeugt, daß dieses ein braver, kunstreicher Mann ist, wohl erzogen, welcher herumreist, sich zu unterrichten. Wir wollen ihn freundlich entlassen, damit er bei seinen Landsleuten Gutes von uns rede und sie aufmuntere, Malcesine zu besuchen, dessen schöne Lage wohl wert ist, von Fremden bewundert zu sein.«
