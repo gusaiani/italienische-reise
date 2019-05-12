@@ -183,4 +183,4 @@ Os rostos benevolentes já se multiplicavam ao meu redor, o primeiro adversário
 
 Enquanto eu dava informações precisas sobre quase tudo que ele me perguntara, sua expressão alternava entre alegria e solenidade. Ele estava tocado e contente, o povo ficava cada vez mais alegre e queria ouvir mais da conversa, parte da qual ele teve que traduzir para seu dialeto.
 
-Finalmente ele disse: “Senhor Podestà, estou convencido de que este é um bravo, artístico homem, bem educado, e que viaja para aprender. Deixe que ele parta amigavelmente, para que fale bem de nós a seus compatriotas, e os incentive a visitar Malcesine, cuja posição merece a admiração dos estrangeiros.”
+Finalmente ele disse: “Senhor Podestà, estou convencido de que este é um bravo, artístico homem, bem educado, e que viaja para aprender. Deixe que ele parta amigavelmente, para que fale bem de nós a seus compatriotas, e os incentive a visitar Malcesine, cuja posição merece a admiração dos estrangeiros.” Eu reforcei essas amigáveis palavras louvando a região e seus habitantes, sem esquecer de mencionar os magistrados como sendo homens sábios e zelosos.
